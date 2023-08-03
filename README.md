@@ -1,3 +1,3 @@
 # CONVEY
-privacy and dates
+Privacy and dates
 account free
