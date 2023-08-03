@@ -1,3 +1,3 @@
 # CONVEY
-coochy privacy and dates
+privacy and dates
 account free
